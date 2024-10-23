@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RemiRemiRemiRemi
+- 👋 Hi, I’m REMI
 - 👀 I’m interested in ... FISH
 - 🌱 I’m currently learning ... FISH
 - 💞️ I’m looking to collaborate on ... FISH
